@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kaisenmona
-- 👀 I’m interested in many things like music, basketball, f1 and books 
+- 👀 I’m interested in many things like music, football, f1 and books 
 - 🌱 I’m currently doing diploma in IT 
 - 💞️ I’m looking to collaborate on opportunities coming my way.    
 - 📫 How to reach me ..
